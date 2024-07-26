@@ -1,0 +1,2 @@
+# Rural Artisans Marketing App
+ 
